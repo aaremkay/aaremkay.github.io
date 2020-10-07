@@ -1,3 +1,5 @@
+[Home](index)
+
 Changing the order. Me first. Then tea with prologues. Coffee later.
 
 Government Arts College Coimbatore was a large campus occupying a fair sized arc of the race track between the outer road of the extinct Race Course and the inner grounds. Just the name, 
