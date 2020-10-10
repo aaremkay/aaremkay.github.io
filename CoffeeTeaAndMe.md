@@ -1,4 +1,4 @@
-[Home](index)
+[Home](index.md)
 
 Changing the order. Me first. Then tea with prologues. Coffee later.
 
